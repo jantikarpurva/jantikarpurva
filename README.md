@@ -7,7 +7,7 @@ a Software Developer and Coding Enthusiast.
 
 Connect with me on - https://www.linkedin.com/in/purva-jantikar-0209/
 
-Resume link - https://drive.google.com/drive/folders/1f1S9bX8XY16C17tdz7e8fBuziFiZgR0B?usp=sharing
+Resume link - https://drive.google.com/drive/folders/1LMKPfpm8hj2j4HxGh3y05GkXzZU8ICRz?usp=sharing
 
 📕 Project Highlights - 
 
